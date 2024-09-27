@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **ranaaryan2100@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1ugHqck4k8Itf0PbvqhbS6j31e3gMmM-w/view](https://drive.google.com/file/d/1ugHqck4k8Itf0PbvqhbS6j31e3gMmM-w/view)
+- 📄 Know about my experiences [[https://drive.google.com/file/d/1ugHqck4k8Itf0PbvqhbS6j31e3gMmM-w/view](https://drive.google.com/file/d/1ugHqck4k8Itf0PbvqhbS6j31e3gMmM-w/view)]
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
